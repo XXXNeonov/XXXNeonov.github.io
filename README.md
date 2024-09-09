@@ -1,0 +1,1 @@
+# svetacoin.github.io
